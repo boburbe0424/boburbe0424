@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @boburbe0424
+- 👋 Hi, I’m Hakimov Boburbek
 - 👀 I’m interested in coding and playing chess
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on language
